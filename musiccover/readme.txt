@@ -1,0 +1,1 @@
+Cover photos public open
